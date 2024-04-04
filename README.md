@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning new language
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me puhmira@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: lazy cat
 
